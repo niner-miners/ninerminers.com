@@ -1,1 +1,1 @@
-# ninerminers.com
+# [ninerminers.com](http://ninerminers.com)
